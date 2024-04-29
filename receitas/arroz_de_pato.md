@@ -1,4 +1,4 @@
-# [Livro de Receitas](../README.MD)
+# [Livro de Receitas](../README.md)
 
 ## Arroz de Pato
 

@@ -9,11 +9,6 @@
 - Azeite
 - Limão
 
-- 
-CONFLICT - ARRANJA ISTO POR FAVOR
-
-
-
 ## Modo de preparo:
 
 - Lave bem as sardinhas e faça alguns cortes diagonais em cada uma.

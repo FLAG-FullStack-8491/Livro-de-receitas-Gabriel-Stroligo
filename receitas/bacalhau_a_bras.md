@@ -12,6 +12,7 @@
 - Azeite
 - Salsa picada
 - Azeitonas pretas (opcional)
+- 1 Folha de Louro
 
 ## Modo de preparo:
 

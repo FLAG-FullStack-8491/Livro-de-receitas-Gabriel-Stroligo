@@ -4,11 +4,11 @@
 
 ### Ingredientes:
 
-- 1 frango cortado em pedaços
+- 2 frangos cortados em pedaços
 - Molho de piri-piri ou malagueta fresca picada a gosto
-- 4 dentes de alho picados
-- Suco de 1 limão
-- Azeite
+- 8 dentes de alho picados
+- Suco de 2 limões
+- vinagre
 - Sal
 
 ## Modo de preparo:

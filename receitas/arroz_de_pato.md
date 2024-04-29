@@ -4,12 +4,12 @@
 
 ### Ingredientes:
 
-- 1 pato cortado em pedaços
-- 2 xícaras de arroz
-- 1 cebola picada
-- 2 dentes de alho picados
-- 1 folha de louro
-- Vinho tinto
+- 2 patos cortados em pedaços
+- 4 xícaras de arroz
+- 2 cebola picada
+- 4 dentes de alho picados
+- 2 folha de louro
+- Vinho branco
 - Caldo de galinha
 - Azeite
 - Sal e pimenta
